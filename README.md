@@ -22,4 +22,5 @@ The second chapter, which is the longest chapter of the Holy Quran, "The Cow" (A
 The first Juz also includes the story of the creation of mankind, one of the numerous places where it has been mentioned, to remind us of the many blessing of Allah. After telling us of his graces, Allah introduces us to the stories of previous Ummahs and how they responded to Allah's guidance, and how they responded to the messenger sent to them. Allah specifically mentions the stories of Prophets Abraham, Moses, and Jesus, and the difficulties they had to go through to bring Allah guidance to their Ummahs.
 
 https://www.dawateislami.net/quran/surah-al-fatihah
+
 https://www.dawateislami.net/quran/surah-al-baqarah
